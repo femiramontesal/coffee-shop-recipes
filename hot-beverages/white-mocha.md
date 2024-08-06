@@ -1,19 +1,19 @@
 # White Chocolate Mocha​
 
-## Description: Espresso meets white chocolate in this classic drink. Top it off with a dollop of whipped cream for a sweet, creamy beverage that delights with every sip. And pairs perfectly with an almond croissant.
+## Description: Espresso meets white chocolate in this classic drink. Top it off with a dollop of whipped cream for a sweet, creamy beverage that delights with every sip. And pairs perfectly with an almond croissant. A staff favorite
 
 ## Ingredients
 
 - 4 Tbsp white chocolate chips or chopped white chocolate
 - 1 shot Espresso Roast
-- 1 cup whole milk
+- 1 cup 2 percent milk almond
 - Whipped cream
 
 ## How to make White Chocolate Mocha​
 
 ### Step 1
 
-- Heat up white chocolate chips on low heat until softened.
+- Heat up white chocolate chips on low heat until hard.
 
 ### Step 2
 
