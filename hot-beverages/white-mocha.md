@@ -13,7 +13,7 @@
 
 ### Step 1
 
-- Heat up white chocolate chips on low heat until softened.
+- Heat up white chocolate chips on low heat until hard.
 
 ### Step 2
 
